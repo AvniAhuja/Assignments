@@ -1,1 +1,1 @@
-Assignments for Celebal Internship
+Assignments for Celebal Technologies Internship
